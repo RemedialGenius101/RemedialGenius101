@@ -1,3 +1,17 @@
+A desert at dusk, where silence holds sway,
+The sand, a canvas of the fading day.
+Crimson and amber streak the sky,
+As the sun kisses the world goodbye.
+
+Cacti stand as stoic sentinels in the hush,
+Guarding the secrets of the twilight's blush.
+The moon ascends, a pale, watchful eye,
+Bathing the dunes in a silver sigh.
+
+Night creatures stir, a whispering choir,
+Their songs rise, a thread of nocturnal fire.
+The air is a blend of coolness and spice,
+A desert's night, a slice of paradise.
 - 👋 Hi, I’m @RemedialGenius101
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...
